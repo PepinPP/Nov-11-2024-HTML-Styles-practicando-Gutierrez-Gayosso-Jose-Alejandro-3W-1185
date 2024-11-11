@@ -27,10 +27,19 @@
 
 ![image](https://github.com/user-attachments/assets/e605ce3f-4556-4ac8-aee1-71c41270b2f0)
 
+--------------------------------------------------
+5-Fuentes
 
+![image](https://github.com/user-attachments/assets/fbda34c3-4533-4a0c-85a8-b4e045dd11be)
 
+![image](https://github.com/user-attachments/assets/8e0acf23-b6c6-438e-b3bf-be669bb33796)
 
+------------------------------------------------------
+6-Alineación de texto
 
+![image](https://github.com/user-attachments/assets/e3a7c0b7-b4c5-4668-bc91-b2a93c5ef054)
+
+![image](https://github.com/user-attachments/assets/11f1958d-1bc1-449f-8b1f-70fa78a5009e)
 
 
 
