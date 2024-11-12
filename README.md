@@ -76,9 +76,19 @@
 
 ![image](https://github.com/user-attachments/assets/27edf39c-6535-4db2-a899-828304326b1f)
 
+--------------------------------------------------
+12-cite
 
+![image](https://github.com/user-attachments/assets/5d8bf3af-5420-452d-883b-4f39b450c023)
 
+![image](https://github.com/user-attachments/assets/718e4594-6332-4bce-9dc2-e2ef59836522)
 
+--------------------------------------------------
+13-bdo
+
+![image](https://github.com/user-attachments/assets/8f3f993e-7aab-4766-878d-030c9d9b8d2d)
+
+![image](https://github.com/user-attachments/assets/ecbca7c6-e2b8-4a0c-970e-5bec1de37337)
 
 
 
